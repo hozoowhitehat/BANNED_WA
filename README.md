@@ -1,0 +1,2 @@
+# BANNED_WA
+🚮😈 BANNED WA REAL BANNED
